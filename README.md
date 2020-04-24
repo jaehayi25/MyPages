@@ -1,1 +1,1 @@
-# MyPages.github.io
+# MyPages
